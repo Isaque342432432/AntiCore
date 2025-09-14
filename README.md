@@ -1,0 +1,2 @@
+# AntiCore
+Anti hackers
